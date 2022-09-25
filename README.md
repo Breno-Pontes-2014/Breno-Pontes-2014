@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Breno
 - 👀 I’m interested in programation and mathematic and english,(I m from and live in Brazil shh!).
-- 🌱 I’m currently learning HTML5 and CSS3.
+- 🌱 I’m currently learning HTML5, CSS3, English, Mathematic.
 - 💞️ I’m looking to collaborate on big projects.
 - 📫 You can reach me with my interests.
